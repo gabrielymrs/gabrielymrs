@@ -8,9 +8,9 @@
 
 ### Voce entra em contato comigo 📫
 
+gabriely.sulzbacher@escola.pr.gv.br
 
 
 
-
+  ![](https://tenor.com/pt-BR/view/mariah-casey-gif-20021273)
   
-![](https://tenor.com/pt-BR/view/mariah-casey-gif-20021273)
